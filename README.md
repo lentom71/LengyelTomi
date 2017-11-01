@@ -1,1 +1,1 @@
-Ez egy új repo. Útálom
+Ez egy új repo. Szeretem
